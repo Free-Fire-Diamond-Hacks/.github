@@ -1,5 +1,7 @@
 Free Fire Diamond Hack To Unlock Unlimited Diamonds Safe Main ID
 =================================
+[Get Link](https://www.magiskmodule.com/category/free-fire-auto-headshot/)
+------------------------------------------------------------------------------------------
 
 Garena's Free Fire has become a global mobile gaming sensation. Players are always looking for ways to improve their game. **Free Fire diamonds** are key, driving player engagement and strategy.
 
